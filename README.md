@@ -2,7 +2,8 @@
 
 - I’m @duffylaura aka Coffee Pawz
 - Reach me via email at lauraduffy700@gmail.com 📫
-- Some projects done on separate GitHub accounts but trying to work more consistently on this one!
+- Some projects done on separate GitHub accounts, reach out to see additional work!
+- [LinkedIn](https://www.linkedin.com/in/coder-laura-duffy)
 
 <h2> Community: </h2>
 
